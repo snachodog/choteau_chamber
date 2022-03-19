@@ -84,7 +84,7 @@ Upon the death, resignation or inability of any Director, a new Director shall b
 
 #### **SECTION 6.**
 
-Any Director who fails to attend three consecutive Board meetings without a valid reason may be disqualified by a majority vote of the Board.
+Any Director who fails to attend three consecutive Board meetings without a valid reason may be disqualified by a majority vote of the Board. Any Director who's membership lapses as of the 31st of January of a year may be disqualified by a majority vote of the Board.
 
 #### **SECTION 7.**
 
