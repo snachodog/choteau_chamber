@@ -112,7 +112,7 @@ In November of each year, the Board President shall appoint a nominating committ
 
 #### **SECTION 13.**&#x20;
 
-At the last meeting of the calendar year, members shall elect new Directors from the slate of candidates presented by the Nominating Committee and from any candidates nominated from the floor. Voting for board members may be done by proxy. The member seeking to vote by proxy must contact another member to accept and vote his or her ballot at the December meeting. The member seeking to vote by proxy shall submit by email or in writing the intent to vote by proxy to the Secretary/Treasurer at least 24 hours before the election. Whenever there is a contested position, ballots will be distributed to the members present at the annual meeting. The candidates receiving the most votes will be elected to terms on the Board of Directors. Whenever there are no contested Director positions, the membership may vote by voice to elect by acclamation the slate of candidates presented by the Nominating Committee.
+At the last meeting of the calendar year, members shall elect new Directors from the slate of candidates presented by the Nominating Committee and from any candidates nominated from the floor. Whenever there is a contested position, ballots will be distributed to the members present at the annual meeting. The candidates receiving the most votes will be elected to terms on the Board of Directors. Whenever there are no contested Director positions, the membership may vote by voice to elect by acclamation the slate of candidates presented by the Nominating Committee.
 
 ### ARTICLE VII OFFICERS
 
