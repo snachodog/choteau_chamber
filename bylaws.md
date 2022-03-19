@@ -58,7 +58,7 @@ Special meetings may be called by the officers or by the written request from a 
 
 #### SECTION 5.
 
-The procedure of meetings will be governed by “Roberts Rules of Order” Newly Revised.
+The procedure of meetings and other operations of the Chamber shall be governed by the latest edition of “Roberts Rules of Order” Newly Revised.
 
 ### ARTICLE VI BOARD OF DIRECTORS
 
