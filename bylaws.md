@@ -140,7 +140,11 @@ It shall be the duty of the Secretary Treasurer to:
 4. Produce financial reports at each monthly Board meeting.
 5. Shall perform such other duties as may be assigned by the Board of Directors.
 
-#### Ex Officio
+#### Ex Officio Directors
+
+The immediate past President serves as an ex officio, non-voting officer until the acting President's term of office ends.
+The Mayor of the City of Choteau serves as an ex officio non-voting officer of the board during their term of office.
+The Chair of the Teton County Commissioners serves as an ex officio, non-voting officer of the board during their term of office.
 
 ### ARTICLE VII DISBURSEMENTS
 
