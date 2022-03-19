@@ -118,7 +118,7 @@ At the last meeting of the calendar year, members shall elect new Directors from
 
 #### **SECTION 1.**
 
-The PRESIDENT shall preside at all meetings of the Chamber and Board of Directors, and perform all duties incident to this office.
+The President shall preside at all meetings of the Chamber and Board of Directors, and perform all duties incident to this office.
 
 1. Shall appoint all committees and shall be ex-officio member of all committees.
 2. With the advice and counsel of the Board, cause a periodic review to be made of the Chamber’s aims, purposes, and policies so that it is responsive to the will of the membership.
@@ -126,11 +126,13 @@ The PRESIDENT shall preside at all meetings of the Chamber and Board of Director
 
 #### **SECTION 2.**
 
-The VICE PRESIDENT shall act in the absence of the President, and perform all duties.
+The Vice President shall act in the absence of the President, and perform all duties.
 
 #### **SECTION 3.**
 
-SECRETARY/TREASURER is a non-voting member of the Board. It shall be the duty of the Secretary Treasurer to:
+Secretary/Treasurer is a non-voting member of the Board.
+
+It shall be the duty of the Secretary Treasurer to:
 
 1. Receive and disburse the funds of the Chamber, and shall keep all monies of the Chamber deposited in its name. No Disbursements of the funds shall be made without approval or authorization from the Board.
 2. Shall collect the dues of members, keep accurate minutes of all meetings of the Chamber.
