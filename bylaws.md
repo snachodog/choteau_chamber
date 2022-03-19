@@ -142,7 +142,7 @@ It shall be the duty of the Secretary Treasurer to:
 
 ### ARTICLE VII DISBURSEMENTS
 
-All disbursements shall be made by check requiring two signatures, that of the Secretary Treasurer and of either the President or Vice President.
+All disbursements shall be made by check requiring two signatures, that of the Secretary/Treasurer and of either the President or Vice President.
 
 ### ARTICLE IX BUDGET
 
@@ -152,7 +152,7 @@ The budget will be presented at the first membership meeting for approval by the
 
 ### ARTICLE X FISCAL YEAR
 
-The fiscal year end shall be the 31st> of December.
+The fiscal year end shall be the 31st of December.
 
 ### ARTICLE XI AMENDMENTS
 
