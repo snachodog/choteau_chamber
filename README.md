@@ -4,5 +4,5 @@ The purpose of this repository is to serve as a back up and alternate place to h
 
 ## Current documents:
 
-* Bylaws
-* Strategic Reserve Policy
+* [Bylaws](bylaws.md)
+* [Strategic Reserve Policy](strategic-reserve-policy.md)
