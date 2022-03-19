@@ -62,11 +62,7 @@ The procedure of meetings and other operations of the Chamber shall be governed 
 
 #### SECTION 6.
 
-Except as otherwise provided in these bylaws, meetings of the Board shall be conducted through use of Internet meeting services designated by the President that support anonymous voting and support visible displays identifying those participating, identifying those seeking recognition to speak, showing (or permitting the retrieval of) the text of pending motions, and showing the results of votes. These electronic meetings of the Board shall be subject to all rules adopted by the Board, or by the Society, to govern them, which may include any reasonable limitations on, and requirements for, Board members’ participation. Any such rules adopted by the Board shall supersede any conflicting rules in the parliamentary authority, but may not otherwise conflict with or alter any rule or decision of the Society. An anonymous vote conducted through the designated Internet meeting service shall be deemed a ballot vote, fulfilling any requirement in the bylaws or rules that a vote be conducted by ballot.
-
-#### SECTION 5.
-
-Meetings Held in Person. Some particular meeting or meetings of the Board shall be held in person either (a) when the President or First Vice-President has obtained written consent for this from every Board member, or (b) when ordered by the Board, by a two-thirds vote with previous notice of a motion to do so having been given.
+Except as otherwise provided in these bylaws, meetings of the Board may be conducted through use of Internet meeting services designated by the President that support anonymous voting and support visible displays identifying those participating, identifying those seeking recognition to speak, showing (or permitting the retrieval of) the text of pending motions, and showing the results of votes. These electronic meetings of the Board shall be subject to all rules adopted by the Board, or by the Society, to govern them, which may include any reasonable limitations on, and requirements for, Board members’ participation. Any such rules adopted by the Board shall supersede any conflicting rules in the parliamentary authority, but may not otherwise conflict with or alter any rule or decision of the Society. An anonymous vote conducted through the designated Internet meeting service shall be deemed a ballot vote, fulfilling any requirement in the bylaws or rules that a vote be conducted by ballot.
 
 ### ARTICLE VI BOARD OF DIRECTORS
 
