@@ -158,19 +158,19 @@ The fiscal year end shall be the 31st of December.
 
 ### ARTICLE XI AMENDMENTS
 
-#### **SECTION 1.**
+#### SECTION 1.
 
 The Bylaws may be amended or altered or repealed by the written consent of two thirds of the members of the Chamber;
 
 OR
 
-#### **SECTION 2.**
+#### SECTION 2.
 
 At a meeting called for the expressed purpose of amending the Bylaws, fifteen days advance notice must be given and at which two thirds of the members present approve the Bylaw changes;
 
 OR
 
-#### **SECTION 3.**
+#### SECTION 3.
 
 At a regular general meeting where two thirds of the members present agree to hear the Bylaw changes and three fourths of the members present approve the Bylaw changes.
 
