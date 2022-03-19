@@ -120,7 +120,7 @@ At the last meeting of the calendar year, members shall elect new Directors from
 
 The President shall preside at all meetings of the Chamber and Board of Directors, and perform all duties incident to this office.
 
-1. Shall appoint all committees and shall be ex-officio member of all committees.
+1. Shall appoint all committees and shall be ex-officio member of all committees, except the nominating committee.
 2. With the advice and counsel of the Board, cause a periodic review to be made of the Chamber’s aims, purposes, and policies so that it is responsive to the will of the membership.
 3. Shall sign all contracts, legal instruments, correspondence and other documents affecting the operation of the Chamber or its properties.
 
