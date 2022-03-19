@@ -64,7 +64,7 @@ The procedure of meetings will be governed by “Roberts Rules of Order” Newly
 
 #### **SECTION 1.**
 
-The Board of Directors will consist of seven (7) voting members and one non-voting member. The non-voting member shall be the secretary-treasurer who will serve an unlimited term, dependent upon the secretary-treasurer remaining employed in good standing by the Chamber of Commerce, Inc.
+The Board of Directors will consist of seven (7) voting members and one non-voting member. The non-voting member shall be the secretary/treasurer who will serve an unlimited term, dependent upon the secretary-treasurer remaining employed in good standing by the Chamber of Commerce, Inc.
 
 #### **SECTION 2.**
 
