@@ -2,7 +2,7 @@
 
 ### ARTICLE I NAME
 
-The name of the organization shall be the CHOTEAU CHAMBER OF COMMERCE.
+The name of the organization shall be the Choteau Chamber of Commerce.
 
 ### ARTICLE II OBJECT
 
@@ -16,7 +16,7 @@ This Chamber, in its activities, shall be nonpartisan, nonsectarian, and shall t
 
 #### **SECTION 1. Regular Membership**
 
-&#x20;Any person, association, corporation, partnership or estate interested in the general welfare of the Choteau area may become a member and will be accepted as a regular member, with voting privileges, upon payment of dues, but may not serve on the board until after one-year membership.
+Any person, association, corporation, partnership or estate interested in the general welfare of the Choteau area may become a member and will be accepted as a regular member, with voting privileges, upon payment of dues, but may not serve on the board until after one-year membership.
 
 #### **SECTION 2. Multiple Memberships**
 
