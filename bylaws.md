@@ -108,7 +108,7 @@ The Board of Directors will submit, in writing, a quarterly report of the work a
 
 #### **SECTION 12.**
 
-In November of each year, the Board of Directors will appoint a nominating committee of three (3) members for the purpose of nominating a slate of candidates to fill expiring terms on the Board of Directors in the annual election to be held in December of each year.
+In November of each year, the Board President shall appoint a nominating committee of three (3) members for the purpose of nominating a slate of candidates to fill expiring terms on the Board of Directors in the annual election to be held in December of each year.
 
 #### **SECTION 13.**&#x20;
 
