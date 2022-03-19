@@ -64,11 +64,11 @@ The procedure of meetings will be governed by “Roberts Rules of Order” Newly
 
 #### **SECTION 1.**
 
-The Board of Directors will consist of seven (7) voting members and one non-voting member. The non-voting member shall be the secretary/treasurer who will serve an unlimited term, dependent upon the secretary-treasurer remaining employed in good standing by the Chamber of Commerce, Inc.
+The Board of Directors will consist of seven (7) voting members and one non-voting member. The non-voting member shall be the secretary/treasurer who will serve an unlimited term, contingent upon the secretary/treasurer remaining employed in good standing by the Chamber of Commerce, Inc.
 
 #### **SECTION 2.**
 
-Board members shall serve three-year, staggered terms, except the term of the board member elected President shall be one to two years in office and one to two years as past-president, regardless of how many years were in the President’s term as a Director prior to his or her election to the President’s office. The initial Board of Directors’ terms will be staggered as follows: three Directors will serve three-year terms; two Directors will serve two-year terms; and two Directors will serve one-year terms. Thereafter, all Directors will be elected to three-year terms. The new Directors will take office at the first board meeting in January following the election in December. Directors’ terms shall run from Jan. 1 to Dec. 31 on a calendar year cycle. _(So, for example, Joe Smith, elected to a three-year term at the December 2016 annual meeting will serve from Jan. 1, 2017, to Dec. 31, 2019.)_
+Board members shall serve three-year, staggered terms. New Directors shall take office January 1st. Board terms end on December 31st of the Director's 3rd year in office.
 
 #### **SECTION 3.**
 
