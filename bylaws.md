@@ -36,7 +36,7 @@ Membership dues shall be at the stated rate as prescribed by the Board of Direct
 
 #### **SECTION 6. Delinquent Dues**
 
-If no payment is received by March 31, a written notice thereof shall be sent by the Secretary. If at the end of 30 days thereafter delinquency remains, the membership shall be suspended until such dues are paid.
+If no payment is received by January 31, a written notice thereof shall be sent by the Secretary. If at the end of February delinquency remains, the membership shall be suspended until such dues are paid.
 
 ### ARTICLE V MEETINGS
 
