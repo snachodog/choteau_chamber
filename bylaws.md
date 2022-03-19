@@ -28,7 +28,7 @@ Any person not actively engaged in any business, commerce or profession, yet int
 
 #### **SECTION 4. Complimentary Membership**
 
-Complimentary memberships will be given to new businesses in the Choteau area for the current membership year, but may be extended to the next membership year by a majority vote of the Board. Complimentary members are not eligible to vote or be nominated to the Board. They may become eligible by paying for regular membership.
+Complimentary memberships will be given to new businesses in the Choteau area for the current membership year, but may be extended to the next membership year by a majority vote of the Board. Complimentary members are not eligible to vote, nor be nominated to the Board. They may become eligible to vote by paying for regular membership.
 
 #### **SECTION 5. Dues**
 
