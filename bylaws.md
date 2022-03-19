@@ -20,7 +20,7 @@ Any person, association, corporation, partnership or estate interested in the ge
 
 #### **SECTION 2. Multiple Memberships**
 
-Any person, firm, association or corporation eligible to membership may acquire more than one membership by undertaking to pay the annual dues, and entitles each membership to voting privileges.
+Any person, firm, association, or corporation eligible to membership may acquire more than one membership by undertaking to pay the annual dues, and entitles each membership to voting privileges.
 
 #### **SECTION 3. Associate Members**
 
