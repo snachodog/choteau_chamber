@@ -134,7 +134,7 @@ Secretary/Treasurer is a non-voting member of the Board.
 
 It shall be the duty of the Secretary Treasurer to:
 
-1. Receive and disburse the funds of the Chamber, and shall keep all monies of the Chamber deposited in its name. No Disbursements of the funds shall be made without approval or authorization from the Board.
+1. Receive and disburse the funds of the Chamber, and shall keep all monies of the Chamber deposited in its name. Disbursements of the funds shall be made with in accordance with the budget or as otherwise approved by a majority of the board.
 2. Shall collect the dues of members, keep accurate minutes of all meetings of the Chamber.
 3. Conduct the official correspondence, preserve all books, documents and communications, and keep books of accounts.
 4. Produce financial reports at each monthly Board meeting.
