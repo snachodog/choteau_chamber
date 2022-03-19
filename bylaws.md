@@ -180,7 +180,7 @@ At a regular general meeting where two thirds of the members present agree to he
 
 ### ARTICLE XII SEAL
 
-THE CHAMBER OF COMMERCE shall have a seal of such design that the Board of Directors may adopt.
+The Chamber of Commerce shall have a seal of such design that the Board of Directors may adopt.
 
 Approved by the membership and dated this 7th day of August, 1997.
 
