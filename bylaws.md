@@ -16,7 +16,7 @@ This Chamber, in its activities, shall be nonpartisan, nonsectarian, and shall t
 
 #### **SECTION 1. Regular Membership**
 
-Any person, association, corporation, partnership or estate interested in the general welfare of the Choteau area may become a member and will be accepted as a regular member, with voting privileges, upon payment of dues, but may not serve on the board until after one-year membership.
+Any person, association, corporation, partnership, or estate interested in the general welfare of the Choteau area may become a member and will be accepted as a regular member, with voting privileges, upon payment of dues, but may not serve on the board until after one-year regular membership.
 
 #### **SECTION 2. Multiple Memberships**
 
@@ -26,7 +26,7 @@ Any person, firm, association, or corporation eligible to membership may acquire
 
 Any person not actively engaged in any business, commerce or profession, yet interested in the general welfare of the Choteau area may be an associate member. Associate members shall be encouraged to attend all Chamber functions but are generally non-voting members. The non-voting status may be waived by the Board of Directors.
 
-#### **SECTION 4. Complimentary Members**
+#### **SECTION 4. Complimentary Membership**
 
 Complimentary memberships will be given to new businesses in the Choteau area for the current membership year, but may be extended to the next membership year by a majority vote of the Board. Complimentary members are not eligible to vote or be nominated to the Board. They may become eligible by paying for regular membership.
 
