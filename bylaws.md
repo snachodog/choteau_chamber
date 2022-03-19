@@ -24,7 +24,7 @@ Any person, firm, association, or corporation eligible to membership may acquire
 
 #### SECTION 3. Associate Members
 
-Any person not actively engaged in any business, commerce or profession, yet interested in the general welfare of the Choteau area may be an associate member. Associate members shall be encouraged to attend all Chamber functions but are non-voting members. The non-voting status may be waived by the Board of Directors.
+Any person not actively engaged in any business, commerce or profession, yet interested in the general welfare of the Choteau area may be an associate member. Individuals, churches, and organizations recognized under section 501(c)3 by the IRS may become Associate Members at a discounted rate determined by the Board. Associate members shall be encouraged to attend all Chamber functions but are non-voting members.  The non-voting status may be waived by the Board of Directors.
 
 #### SECTION 4. Complimentary Membership
 
