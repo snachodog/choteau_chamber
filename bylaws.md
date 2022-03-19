@@ -181,13 +181,3 @@ At a regular general meeting where two thirds of the members present agree to he
 ### ARTICLE XII SEAL
 
 The Chamber of Commerce shall have a seal of such design that the Board of Directors may adopt.
-
-Approved by the membership and dated this 7th day of August, 1997.
-
-Bylaw Committee: Kayla Breen, Joyce Lindgren, Mar Sue Jensen, Stan Rasmussen, Tom Rogers.
-
-The Nominating Committee, in the process of nominating board members, proposed these amendments to Article VI Directors. Committee members were: Melody Martinsen, Lorry Rasmussen and Gordon Loverink.
-
-Amended by the General Membership on December 13, 2017.
-
-Jodi Rogers, President, Tom Frownfelder, Vice President, Laura Buck, President Emeritus, Jere Long, Director, Mandy Wick, Director, Stacia Martineau, Director, Genny Barhaugh, Director, Steve Dogiakos, Director
